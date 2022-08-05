@@ -2,7 +2,8 @@
 - 👀 I’m interested in gym
 - 🌱 I’m currently learning to get big
 - 💞️ I’m looking to collaborate on select body center
-- 📫 How to reach me 55 045 991271707
+- 📫 How to reach me 55 045 998021640
+
 
 <!---
 batataepolaco/batataepolaco is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
