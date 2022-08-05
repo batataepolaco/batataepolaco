@@ -2,7 +2,7 @@
 - 👀 I’m interested in gym
 - 🌱 I’m currently learning to get big
 - 💞️ I’m looking to collaborate on select body center
-- 📫 How to reach me 55 045 998021640
+- 📫 How to reach me 55 045 998031640
 
 
 <!---
